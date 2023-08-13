@@ -1,2 +1,0 @@
-# byi
-igors theme 😊
